@@ -10,3 +10,6 @@
 # 3. No mosha 🚫🦟
 
 # 100% Fresh Air 🌬️💯 / No Stale Air
+
+# Home is a place for rest, recovery, and relaxation.
+# Home is a place for love, laughter, and happiness.
