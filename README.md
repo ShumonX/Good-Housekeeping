@@ -10,6 +10,7 @@
 # 3. No mosha 🚫🦟
 
 # 100% Fresh Air 🌬️💯 / No Stale Air
+Stale air can also arise due to from lack of greenery
 
 # Home is a place for rest, recovery, and relaxation.
 # Home is a place for love, laughter, and happiness.
