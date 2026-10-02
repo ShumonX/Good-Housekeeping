@@ -9,7 +9,9 @@ So no road noise, of tyre roar hanging in the air, of bathroom exhaust fans, kit
 
 Stillness. No string of cyclists in a hurry, turning the neighbourhood into a frenzy. Movement should be relaxed, graceful.
 
-Birdsong. Our brains are still running on ancient survival software. Dead silence signals imedeing danger and spikes anxiety. Birdsong should be present constantly during daylight hours, not crows or God forbid, seagulls. But hummingbirds, parrots, bulbuls, jungle babblers, woodpeackers.
+Birdsong. Our brains are still running on ancient survival software. Dead silence signals imedeing danger and spikes anxiety. Birdsong should be present constantly during daylight hours, not crows or God forbid, seagulls. But hummingbirds, parrots, bulbuls, jungle babblers, woodpeckers, shaliks/mynas.
+
+This also implies plenty of greenery, trees, canopy, and variety 🌴🌳🌲
 
 # কলকাতা has 3 problems: heat, noise, and mosha.
 # Salt Lake houses solve none of these; in fact, they exacerbate all 3.
