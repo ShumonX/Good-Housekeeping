@@ -13,6 +13,8 @@ Birdsong. Our brains are still running on ancient survival software. Dead silenc
 
 This also implies plenty of greenery, trees, canopy, and variety 🌴🌳🌲
 
+Fractal staring is automatic, as you can spot leaves from the corner of your eyes all the time.
+
 # কলকাতা has 3 problems: heat, noise, and mosha.
 # Salt Lake houses solve none of these; in fact, they exacerbate all 3.
 
