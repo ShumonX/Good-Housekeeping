@@ -5,7 +5,7 @@ Let me explain.
 
 Silence. Silence is not just the absence of noise, but also the absence of ambient vibrations.
 
-So no road noise, of tyre roar hanging in the air, of bathroom exhaust fans, kitchen extractor fans, air conditioner outdoor units, etc.
+So no road noise, of tyre roar hanging in the air, or of inconsiderate Insensitive Thoughtless neighbours' bathroom exhaust fans, kitchen extractor fans, air conditioner outdoor units, etc.
 
 Stillness. No string of cyclists in a hurry, turning the neighbourhood into a frenzy. Movement should be relaxed, graceful.
 
